@@ -1,0 +1,1 @@
+My name is Sage Khurana, and I am a current Undergraduate at William & Mary majoring in Geology and Biology. I currently conduct research in the Conservaton Paleobiology Lab under Dr. Rowan Lockwood on the mid-Piacenzian Warm Period.
